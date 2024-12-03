@@ -9,4 +9,5 @@ SUBMITTED RESEARCH PAPER FOR PUBLICATION
 Website -: https://journals.aijr.org/
 
 Submission Acknowledgement
-![image](https://github.com/user-attachments/assets/e8e093ae-3c53-401b-89a5-82aeee350478)
+![image](https://github.com/user-attachments/assets/087cf798-26bb-429b-8e28-947e048e9006)
+
